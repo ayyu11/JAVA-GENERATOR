@@ -1,3 +1,3 @@
-# JAVA-GENERATOR
+# JAVA STAR
 lest's meet with my friend JAVA ....
 thnx for meet
